@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 title: What I've Found Out About Nail Fungus and Not Everyone Knows
 ---
 We all love summer season, with its warm, better yet hot days, when all we want to do is have a swim and enjoy a cold and fresh fruit juice. We do not have to wear anymore those thick clothes which can be now replaced with comfortable and loose shirts and short pants.
