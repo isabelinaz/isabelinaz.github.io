@@ -1,7 +1,8 @@
 ---
-published: true
 title: What I've Found Out About Nail Fungus and Not Everyone Knows
+date: 2017-09-22 00:00:00 Z
 ---
+
 We all love summer season, with its warm, better yet hot days, when all we want to do is have a swim and enjoy a cold and fresh fruit juice. We do not have to wear anymore those thick clothes which can be now replaced with comfortable and loose shirts and short pants.
 
 Even though we do not have the sea nearby our house, we can always find a perfect swimming pool in town where we can fully enjoy a so needed bath. But did you know that these places, along with public showers and saunas are some of the most frequent places to catch a nail fungus? The thing is that in these places the environment is most of the time a humid one and so there is a high risk of getting [such infections](https://medlineplus.gov/ency/article/001330.htm "Fungal nail infection").
