@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 ---
 We are all living in a time where speed is the main characteristic of all of our actions, thoughts, reactions, and of the society we live in general.  We all tend to be so focused on the outside that most of us almost never find the time and courage to return to the inner self and question our individual reason for being. Within a society in continuous change, with people always running for the mirage of the outside world, yoga is trying to bring the human to himself and to draw the attention from the outside world to the more complex but also more rewarding inside world. The individuals who perform regular yoga practice and know the means and techniques of taking the journey within themselves are the ones who master in the century we live in an Art of living that might be more precious than all the attractions that the outside world can offer.
