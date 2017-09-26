@@ -1,6 +1,6 @@
 ---
 title: Ways of Treating Candida
-date: {}
+date: 2017-09-25
 published: true
 ---
 
