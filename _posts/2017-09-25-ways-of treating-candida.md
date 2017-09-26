@@ -1,7 +1,6 @@
 ---
 title: Ways of Treating Candida
-date: 2017-09-25
-published: true
+date: 2017-09-25 00:00:00 Z
 ---
 
 Candida is an infection determined by a fungus belonging to the Candida family. There are 80 species of [Candida](https://www.cdc.gov/fungal/diseases/candidiasis/invasive/treatment.html "Treatment for Invasive Candidiasis"), and the most harmful ones are Albicans and Tropicalis.
