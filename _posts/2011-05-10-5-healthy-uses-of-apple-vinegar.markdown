@@ -29,3 +29,12 @@ Healthy top uses of apple cider vinegar
 5. Proper blood sugar and diabetes improvement
 
  Some clinical trials seem to prove that the acetic acid in apple cider vinegar can actually balance the levels of your blood sugar and mild the adverse effects related to diabetes disease. For this health benefit, you should simply mix one tablespoon of apple cider vinegar with water and drink it before every meal or add this apple vinegar on your daily food like salads and other similar products.
+
+
+1. Option one
+
+ Second paragraph
+
+2. Option two
+
+ Second paragraph
