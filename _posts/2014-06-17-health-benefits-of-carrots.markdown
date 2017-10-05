@@ -1,6 +1,6 @@
 ---
 title: Health Benefits of Carrots
-date: 2017-10-05 12:13:00 Z
+date: 2014-06-17 12:13:00 Z
 ---
 
 Carrots are a type of super-foods, crunchy and creamy with vitamin A, also providing many health benefits like maintaining healthy skin, perfect eye vision, anti-aging properties and [preventing several types of cancer](http://www.express.co.uk/news/uk/483656/Carrots-hold-key-to-beating-cancer-say-scientists).
