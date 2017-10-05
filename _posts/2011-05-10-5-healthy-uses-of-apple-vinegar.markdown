@@ -12,20 +12,20 @@ Healthy top uses of apple cider vinegar
 
 1. Treats Heartburns and Acid Reflux 
 
-These two medical conditions appear when the pH levels inside your stomach are imbalanced, and the probiotics and enzymes are missing, or they are in small amounts, so using apple vinegar should replace these nutrients because there are components of this amazing product. The perfect recipe consists of merely adding one tablespoon of apple cider vinegar to a cup of water and consuming it five minutes before every meal.
+ These two medical conditions appear when the pH levels inside your stomach are imbalanced, and the probiotics and enzymes are missing, or they are in small amounts, so using apple vinegar should replace these nutrients because there are components of this amazing product. The perfect recipe consists of merely adding one tablespoon of apple cider vinegar to a cup of water and consuming it five minutes before every meal.
 
 2. Powerful detox body method
 
-Consuming apple cider vinegar is a great way to detox and adequately clean your liver and lymphatic system because it is an excellent tonic which successfully balances the levels of your body’s pH, also stimulating lymphatic drainage, bowel movements, and overall cardiovascular functions, even helping your heart to work better and healthier.
+ Consuming apple cider vinegar is a great way to detox and adequately clean your liver and lymphatic system because it is an excellent tonic which successfully balances the levels of your body’s pH, also stimulating lymphatic drainage, bowel movements, and overall cardiovascular functions, even helping your heart to work better and healthier.
 
 3. Candida and yeast killer
 
-It seems that many people are suffering from candida and different kind of enzymes, so they experience bad breath, digestive medical problems and a total lack of energy. This can be a problem because everyone wants to be able to fulfill different daily duties, so the acids from apple cider vinegar will destroy these harmful bacteria and yeasts, also promoting the growth of new cultures of probiotics inside your body. Remove sugar entirely from your daily diet and consume just one tablespoon of apple cider vinegar for three times a day as a perfect candida cleansing method.
+ It seems that many people are suffering from candida and different kind of enzymes, so they experience bad breath, digestive medical problems and a total lack of energy. This can be a problem because everyone wants to be able to fulfill different daily duties, so the acids from apple cider vinegar will destroy these harmful bacteria and yeasts, also promoting the growth of new cultures of probiotics inside your body. Remove sugar entirely from your daily diet and consume just one tablespoon of apple cider vinegar for three times a day as a perfect candida cleansing method.
 
 4. Balanced pH levels inside your body
 
-The acetic acid from apple cider vinegar has an overall alkaline effect on your body’s pH, so the levels of this pH will be properly balanced, this way providing health, energy boosting, also preventing chronical disease like cancer and much more, so it is the perfect time to start an apple cider vinegar-based diet.
+ The acetic acid from apple cider vinegar has an overall alkaline effect on your body’s pH, so the levels of this pH will be properly balanced, this way providing health, energy boosting, also preventing chronical disease like cancer and much more, so it is the perfect time to start an apple cider vinegar-based diet.
 
 5. Proper blood sugar and diabetes improvement
 
-Some clinical trials seem to prove that the acetic acid in apple cider vinegar can actually balance the levels of your blood sugar and mild the adverse effects related to diabetes disease. For this health benefit, you should simply mix one tablespoon of apple cider vinegar with water and drink it before every meal or add this apple vinegar on your daily food like salads and other similar products.
+ Some clinical trials seem to prove that the acetic acid in apple cider vinegar can actually balance the levels of your blood sugar and mild the adverse effects related to diabetes disease. For this health benefit, you should simply mix one tablespoon of apple cider vinegar with water and drink it before every meal or add this apple vinegar on your daily food like salads and other similar products.
