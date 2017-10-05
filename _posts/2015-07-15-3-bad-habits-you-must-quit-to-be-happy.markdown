@@ -1,0 +1,12 @@
+---
+title: 3 Bad Habits You Must Quit to Be Happy
+date: 2015-07-15 12:05:00 Z
+---
+
+Many people believe that the recipe for happiness is very difficult to find and respect, but it seems that it is easier than most of the people think; all they have to do is to quit of some regular bad habits that are responsible for interrupting the inner peace, calm and balance between the mind, soul and nature and of course, between their own and other people. So happiness is a state of mind and it is only your responsibility to become happy and optimistic, so here are some things you should do to become a person with a fulfilled, calm life:
+
+1. Quit comparing yourself to other people and remember each person is unique! Fortunately, we are different, and this is a great, beautiful thing because being like others is very dull. So do not compare with fake models from television or other media sources and instead focused on developing your own personality and realizing that you have a unique combination of qualities that no one else in the world has, and this is the miracle of AND print. Enjoy the different life you have given and focus on being yourself to please your person and not only people around you who could sometimes be dishonest with you. It seems that this is the first step to happiness.
+
+2. Stop being ungrateful for what you have! Yes, this is a common trap that will make you consider that other people have much more exciting things and qualities than you and you will be very disappointed in this fact. Try to be grateful for all the good things in your life, small or big and try to realize that without these particular experiences, you would not be so original and different from others, so stop taking all your life for granted because it is short, and the key to your inner peace is to find your interior calm and thankful feelings. 
+
+3. Quit running from your daily problems and instead, face them! Well, the thing is that everyone has issues and different fears, but the solution to happiness is to deal with them and try to live with your concerns, instead of thinking irrational and acting irresponsibly. If you choose to run from your problems, there will hunt you down and will follow you day and night, destroying your inner peace entirely, and your relations with friends and family will also be significantly affected. Try to communicate with them and search for help when you feel overwhelmed by your problems, you may find out that many people are trying to give you a hand in your pursuit of happiness.
