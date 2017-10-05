@@ -6,7 +6,7 @@ layout: post
 
 We are all living in a time where speed is the main characteristic of all of our actions, thoughts, reactions, and of the society we live in general.  We all tend to be so focused on the outside that most of us almost never find the time and courage to return to the inner self and question our individual reason for being. Within a society in continuous change, with people always running for the mirage of the outside world, yoga is trying to bring the human to himself and to draw the attention from the outside world to the more complex but also more rewarding inside world. The individuals who perform regular yoga practice and know the means and techniques of taking the journey within themselves are the ones who master in the century we live in an Art of living that might be more precious than all the attractions that the outside world can offer.
 
-![yoga+wallpaper.jpg]({{site.baseurl}}/_posts/yoga+wallpaper.jpg)
+![yoga+wallpaper.jpg]({{site.url}}/_posts/yoga+wallpaper.jpg)
 
 
 From a strictly Hindu oriented perspective, Yoga is one of the six major schools of Hinduism, while the Yoga Sutras of Pantajali represent the main text to study and refer to for any student within the Yoga school. While in some aspects similar to other Hindu philosophical schools, the philosophy of yoga is different in the emphasis it puts on the importance of discipline of practice and of techniques used in the process of achieving moksha - breaking the rebirth circle imposed by karma and being freed as a spirit from the human incarnation and reincarnation.
