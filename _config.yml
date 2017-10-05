@@ -1,5 +1,5 @@
 ---
-title: Isabelinaz.Github.Io
+title: Kate Dralen Blog
 timezone: UTC
 collections:
   posts:
@@ -10,7 +10,7 @@ collections:
     output: true
 name: Isabelle Z
 description: Spreading Love&Hapiness
-avatar: https://avatars2.githubusercontent.com/u/32156315
+avatar: 
 footer-links:
   dribbble: 
   email: 
@@ -24,10 +24,10 @@ footer-links:
   twitter: ZarateIsabelina
   stackoverflow: 
   youtube: 
-  googleplus: u/0/105107242703964370717
-disqus: disqus_GWGlktwFj9
+  googleplus: 
+disqus: 
 google_analytics: 
-url: https://isabelinaz.github.io/
+url: https://katedralen.com
 baseurl: ''
 permalink: "/:title/"
 version: v1.2.0
