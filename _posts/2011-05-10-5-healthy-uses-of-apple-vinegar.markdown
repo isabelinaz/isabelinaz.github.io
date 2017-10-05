@@ -16,10 +16,6 @@ These two medical conditions appear when the pH levels inside your stomach are i
 
 2. Powerful detox body method
 
-
-    ```
-    Code block
-    ```
 Consuming apple cider vinegar is a great way to detox and adequately clean your liver and lymphatic system because it is an excellent tonic which successfully balances the levels of your body’s pH, also stimulating lymphatic drainage, bowel movements, and overall cardiovascular functions, even helping your heart to work better and healthier.
 
 3. Candida and yeast killer
@@ -41,3 +37,11 @@ Consuming apple cider vinegar is a great way to detox and adequately clean your 
     Code block
     ```
 3. item 3
+
+1. Option one
+
+ Second paragraph
+
+2. Option two
+
+ Second paragraph
