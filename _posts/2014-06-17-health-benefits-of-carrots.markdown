@@ -11,17 +11,17 @@ You will no longer need to search for Vitamin A based pills and nutritional supp
 
 ## Health benefits of carrots
 
-1.Improved eye vision
+1. Improved eye vision
 
 First of all, carrots are filled with beta-carotene substances, which are transformed by the liver into vitamin A. This critical vitamin will improve your eye’s ability to see through the night because it maintains a healthy retina inside your eyes.
 
 Several clinical trials recorded that beta-carotene also can protect against macular degeneration and senile cataracts related to the aging process which occurs in time.
 
-2.Protects against aging effects
+2. Protects against aging effects
 
 It seems that beta-carotene inside carrots also prevent tissues damaging and is a real help in treating and renewing your body cells, slowing down the aging process and its negative effects. Your entire metabolism will also be boosted and will function properly, providing new waves of energy for different tasks.
 
-3.Provides a healthy skin
+3. Provides a healthy skin
 
 The antioxidant substances and vitamin A from the carrots protect and renew the skin damaged by sunburns, also releasing the pain related to these sunburns. If a vitamin A deficiency occurs in your body, it leads to dry skin, nails, and hair, making them more fragile and more accessible to damage. The proper consumption of vitamin A form the carrots will prevent premature wrinkling, skin spots and different tones, irregular pigmentation and dry skin or damaged hair, so we can say that carrots are some youth-providing vegetables and tasty raw crunches.
 
