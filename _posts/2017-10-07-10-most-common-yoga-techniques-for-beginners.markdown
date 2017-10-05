@@ -7,7 +7,7 @@ Yoga is a very popular practice to achieve a balance between your body and mind 
 
 On a psychological level, yoga helps you to become aware of your thoughts and feelings and helps you to express them more effectively, and on a physical level, yoga helps you to improve your endurance, strength, and flexibility.
 
-[![10-yoga-techniques-800x450.jpg](%7B%7Bbase.url%7D%7D/uploads/10-yoga-techniques-800x450.jpg)](http://time.com/4695558/yoga-breathing-depression/)
+[![10-yoga-techniques-800x450.jpg]({{Bbase.url}}/uploads/10-yoga-techniques-800x450.jpg)](http://time.com/4695558/yoga-breathing-depression/)
 
 There are many ways to practice yoga. Furthermore, we will see ten of the most popular yoga techniques or positions which are recommended both for women and men.
 
