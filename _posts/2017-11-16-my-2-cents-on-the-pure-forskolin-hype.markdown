@@ -22,7 +22,7 @@ The process used by Pure Forskolin Extract is simple, yet effective. The main in
 
 The manufacturer of Pure Forskolin Extract kept all the ingredients from the previous formulas but changed the ratio and quantity.
 
-
+![forskolin extract](/uploads/forskolin-extract.jpg)
 
 What are the benefits of Pure Forskolin Extract?
 Pure Forskolin Extract is the most effective version so far of the dietary supplements based on this substance. Even if its main purpose is to help control the body weight by stimulating the process of breaking down the fat in the cells, it has proven to be effective in improving  other health conditions like:
