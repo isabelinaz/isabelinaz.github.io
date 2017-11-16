@@ -7,7 +7,7 @@ categories:
 
 We are all in the constant search for that perfect skin, that perfect toned body which can help us to be a valuable part of the society we are living. All the stereotypes that media has imposed us to believe as being the ultimate goal, regarding ideal weight, have done nothing more than pushing us to look for diets. One of the extraordinary gifts that nature has given us is the CLA safflower oil, which can represent the perfect option when we feel the need to lose some pounds.
 
-![cla-safflower-oil.jpg](/uploads/forskolin-extract.jpg)
+![forskolin extract](/uploads/forskolin-extract.jpg)
 
 Moreover, specialists say that including this oil into your process of achieving that dreamed weight can be nothing more than a successful choice, and might just want everybody else to know. The fact that this “oily” remedy for extra pounds is filled with unsaturated essential fats represents the main criteria according to which weight control specialists recommend so eagerly as an alternative.
 
