@@ -16,9 +16,13 @@ Pure Forskolin Extract is a dietary supplement for weight loss. This new formula
 **How does Pure Forskolin Extract work?**
 
 The process used by Pure Forskolin Extract is simple, yet effective. The main ingredient boosts the metabolism and forces it to burn more calories while maintaining your daily routine. In other words, with just one capsule of Pure Forskolin Extract a day, you can continue with the usual lifestyle and at the same time shed off the extra weight with no effort at all. The result is a slimmer body and a happier mood.
-What are the ingredients of Pure Forskolin Extract?
+
+**What are the ingredients of Pure Forskolin Extract?**
+
 
 The manufacturer of Pure Forskolin Extract kept all the ingredients from the previous formulas but changed the ratio and quantity.
+
+
 
 What are the benefits of Pure Forskolin Extract?
 Pure Forskolin Extract is the most effective version so far of the dietary supplements based on this substance. Even if its main purpose is to help control the body weight by stimulating the process of breaking down the fat in the cells, it has proven to be effective in improving  other health conditions like:
